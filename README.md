@@ -1,10 +1,10 @@
 ︵‿︵‿୨ᰔ୧‿︵‿︵
 
-*ANO & CO ; F: iTrapped (MM12) ~ COF: N/A*
+*ANO & CO ; F: iTrapped (MM12) ~ COF: Ellernate (MM12)*
 
-**F:** _There, I made it all... fancy._
+**F:** _Shut. up. El._
 
-**COF:** _ _
+**COF:** _Ohohoho~ iTrapped's playing a gaammmeeeee..~_
 
 ❥﹐☆
 
