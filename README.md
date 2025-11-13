@@ -1,24 +1,26 @@
-other got deleted;-;
-//
+︵‿︵‿୨ᰔ୧‿︵‿︵
 
-_ANO & CO FRONT STATUS:_ **F:** _iTrapped(May Madness 2012)_ - **COF:** _ _
+*ANO & CO ; F: iTrapped (MM12) ~ COF: N/A*
 
-**FRONT COMMENTARY:** _I hate remaking this._
+**F:**
 
-**CO-FRONT COMMENTARY:** _ _
+**COF:**
 
-/
+❥﹐☆
 
-_DANI & CO FRONT STATUS:_ **F:** _ _  - **COF:** _ _
+*DANI & CO ; F: N/A  ~ COF: N/A*
 
-**FRONT COMMENTARY:** _ _
+**F:**
 
-**CO-FRONT COMMENTARY:** _ _
+**COF:**
 
-/
+╔════♡════╗
+╚════♡════╝
 
-_BAGEL & CO FRONT STATUS:_ **F:** _ _ - **COF:** _ _
+*BAGEL & CO ; F: N/A ~ COF: N/A*
 
-**FRONT COMMENTARY:**_ _
+**F:**
 
-**CO-FRONT COMMENTARY:** _ _
+**COF:**
+
+︵‿︵‿୨ᰔ୧‿︵‿︵
