@@ -6,6 +6,8 @@
 
 **COF:** _~~tired..~~_
 
+**COF(2):** _N/A, unable to type_
+
 ❥﹐☆
 
 *DANI & CO ; F: Dani ~ COF: N/A*
