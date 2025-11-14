@@ -12,7 +12,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** ,,,I dont know how willing they are to speak around n7,, 😶
+**F:** i mean its either that, they're processing things, or they're trying to avoid using the website rn
 
 **COF:** _ _
 
