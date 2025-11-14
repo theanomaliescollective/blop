@@ -14,7 +14,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** slept alright, ig
+**F:** 
 
 **COF:** _ _
 
