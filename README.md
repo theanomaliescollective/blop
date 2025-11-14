@@ -4,7 +4,7 @@
 
 **F:** **...**
 
-**COF:** _Hi, Dani!! :D_
+**COF:** _Doin' civics work, be back soon! Also monitoring n7.._
 
 ❥﹐☆
 
