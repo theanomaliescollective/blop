@@ -6,7 +6,7 @@
 
 **F:** _CK, you doin' okay? You're aware I won't let him talk to you, yes?_
 
-**F2:** _How'd you sleep, Dani?_
+**F2:** _As long as you slept.._
 
 
 
