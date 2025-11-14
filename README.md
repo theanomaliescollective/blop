@@ -1,14 +1,14 @@
 ︵‿︵‿୨ᰔ୧‿︵‿︵
 
-*ANO & CO ; F: John Doe.{MS4} ~ COF: Reaps , 007n7(Ms3, in a strap-jacket)*
+*ANO & CO ; F: John Doe.{MS4} ~ COF: 007n7(Ms3, in a strap-jacket)*
 
 status
 
-**F:** _We not questioning n7?_
+**F:** _Hey, c00lieo. Also, yeah, it's the bad n7. I got somethin' for Dani since they're having trouble with their system, so I'll just put it at the very bottom_
 
-**COF:** _~~ttttired.~~_
+**COF:** _N/A, unable to type_
 
-**COF(2):** _N/A, unable to type_
+
 
 ❥﹐☆
 
@@ -29,3 +29,98 @@ status
 **COF:** _ _
 
 ︵‿︵‿୨ᰔ୧‿︵‿︵
+
+
+who do i feel like right now?
+(it’s okay not to be sure)
+
+---
+
+---
+
+---
+
+what do i remember from today so far?
+
+---
+
+---
+
+---
+
+have i noticed any memory gaps or missing time?*
+
+---
+
+---
+
+---
+
+how am i feeling emotionally right now?
+
+---
+
+---
+
+---
+
+how has the day felt overall?
+(foggy, heavy, light, fast, slow, disconnected...)
+
+---
+
+---
+
+---
+
+have there been any alter switches today?
+(what made me think that?)
+
+---
+
+---
+
+---
+
+do i feel close to or distant from other parts of me?
+
+---
+
+---
+
+---
+
+were there any thoughts, urges, or voices that didn’t feel like me?
+
+---
+
+---
+
+---
+
+is there anything someone else in the system should know?
+
+---
+
+---
+
+---
+did i use (or want to use) any coping or grounding tools?
+
+---
+
+---
+
+---
+
+ anything else on your mind?
+
+---
+
+---
+
+---
+
+---
+
+---
