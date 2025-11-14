@@ -12,7 +12,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** ,,,
+**F:** ,,,I dont know how willing they are to speak around n7,, 😶
 
 **COF:** _ _
 
