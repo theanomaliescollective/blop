@@ -1,10 +1,10 @@
 ︵‿︵‿୨ᰔ୧‿︵‿︵
 
-*ANO & CO ; F: iTrapped (MM12) ~ COF: Ellernate (MM12)*
+*ANO & CO ; F: John Doe.{MS4} ~ COF: N/A*
 
-**F:** _... Hope they're alright._
+**F:** _Eugh._
 
-**COF:** _Relaaaaaaaaaaaax, T. They're fine._
+**COF:** _ _
 
 ❥﹐☆
 
