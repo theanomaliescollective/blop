@@ -2,9 +2,9 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: Reaps , 007n7(Ms3, in a strap-jacket)*
 
-**F:** _Nope. No ideas._
+**F:** _We not questioning n7?_
 
-**COF:** _~~mrh. its fine.~~_
+**COF:** _~~ttttired.~~_
 
 **COF(2):** _N/A, unable to type_
 
