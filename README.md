@@ -10,8 +10,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** oh
-hi brighteyes :D
+**F:**
 
 **COF:** _ _
 
