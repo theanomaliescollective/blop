@@ -8,9 +8,9 @@
 
 ❥﹐☆
 
-*DANI & CO ; F: N/A  ~ COF: N/A*
+*DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** _ _
+**F:** if I ever go too quiet, yall read my status, pls
 
 **COF:** _ _
 
