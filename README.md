@@ -1,16 +1,16 @@
 ︵‿︵‿୨ᰔ୧‿︵‿︵
 
-*ANO & CO ; F: John Doe.{MS4} ~ COF: N/A*
+*ANO & CO ; F: John Doe.{MS4} ~ COF: Reaps , 007n7(Ms3, in a strap-jacket)*
 
-**F:** _Eugh._
+**F:** _That's fine. We're trying to make a new system name_
 
-**COF:** _ _
+**COF:** _~~tired..~~_
 
 ❥﹐☆
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** if I ever go too quiet, yall read my status, pls
+**F:** if I ever go too quiet, y'all read my status, pls
 
 **COF:** _ _
 
