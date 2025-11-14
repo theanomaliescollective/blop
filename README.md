@@ -24,7 +24,7 @@ status
 
 *BAGEL & CO ; F: c00lkidd ~ COF: N/A*
 
-**F:** _0h r1ght 1 f0rg0t 1'm n0t supp0s3d t0 t4lk t0 th4t 0n3 o.O_
+**F:** _b4g3l f0rg0t t0 t3ll m3.. why 4m 1 n0t 4ll0w3d t0 t4lk t0 h1m..?_
 
 **COF:** _ _
 
