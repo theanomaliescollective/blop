@@ -2,9 +2,9 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: Reaps , 007n7(Ms3, in a strap-jacket)*
 
-**F:** _That's fine. We're trying to make a new system name_
+**F:** _Nope. No ideas._
 
-**COF:** _~~tired..~~_
+**COF:** _~~mrh. its fine.~~_
 
 **COF(2):** _N/A, unable to type_
 
