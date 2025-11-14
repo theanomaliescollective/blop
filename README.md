@@ -2,9 +2,9 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: 007n7(Ms3, in a strap-jacket)*
 
-status
+*(He's actively refreshing every second, best to do the same -m0rgan)*
 
-**F:** _Fuckin- Hi, Dani_
+**F:** _How'd you sleep?_
 
 **COF:** _N/A, unable to type_
 
