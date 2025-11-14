@@ -12,7 +12,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** ...I really am sorry, reaps, for how quiet I am. also, yall have any ideas for it or nah?
+**F:** ...oof,,
 
 **COF:** _ _
 
