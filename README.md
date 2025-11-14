@@ -14,7 +14,7 @@ status
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** ...oof,,
+**F:** . . .
 
 **COF:** _ _
 
